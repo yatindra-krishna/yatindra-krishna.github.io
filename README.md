@@ -1,1 +1,0 @@
-# yatindra-krishna.github.io
